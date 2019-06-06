@@ -1,0 +1,12 @@
+# Typex-Style-Words
+Typex Style Words
+
+Billy Christian
+
+Phone: +8615127853978
+
+Email: poea50@163.com
+
+Very good fashion cool text title animation tool
+
+
